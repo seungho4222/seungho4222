@@ -1,5 +1,13 @@
 ### Hi there 👋
 
+💓 SSAFY TENSION UP 10TH 💓
+
+- 😵 싸피에서 개발자 첫걸음!!!
+- 😆 힘들어도 재밌는 싸피!!!
+- 🚌 셔틀버스 1시간은 너무 서러워 😭😭😭
+- 💪 포기하지 않기, 다 같이 성장하기
+- 🔥🔥🔥 1년 불태워보자 🔥🔥🔥
+
 <!--
 **seungho4222/seungho4222** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
